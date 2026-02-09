@@ -1,1 +1,3 @@
-# .github
+# *Fire from Heaven: God’s Judgment & God’s Mercy*
+## *Witness the breathtaking power of God’s justice! Explore the story of Lot’s escape from Sodom as told in The Action Bible. Discover why God’s holiness matters and how He protects His own. This web story brings God’s justice, mercy, and power to life. Explore hidden facts, powerful lessons, and faith-building truths that will spark awe and draw you closer to God’s Word.* [More details…](https://spiritualkhazaana.com/web-stories/fire-from-heaven/)
+## #firefromheaven #firefromheavenbiblestory #sodomandgomorrah #sodomandgomorrahexplained #actionbiblestories #biblecomicwebstory #godsjudgmentandmercy #oldtestamentstoriesexplained #christianfaithwebstories #sodomgomorrah #actionbible #lotswife #BibleHeroes #ActionBible #GodsMercy
